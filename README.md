@@ -5,5 +5,5 @@ Software engineer passionate about bridging the gap between low-level hardware c
 ---
 
 ## 📬 Connect with me
-*   💼 **LinkedIn:** [Your Profile](https://linkedin.com)
-*   📧 **Email:** [your.email@example.com](mailto:your.email@example.com)
+*   💼 **LinkedIn:** [My Profille LinkedIN]([https://linkedin.com](https://www.linkedin.com/in/micha%C5%82-ko%C5%9Bci%C3%B3%C5%82ek-64112a251/))
+*   📧 **Email:** [kosciolek.michal.kontakt@gmail.com](mailto:kosciolek.michal.kontakt@gmail.com)
